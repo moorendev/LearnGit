@@ -1,3 +1,3 @@
 # LearnGit
 
-Amogus
+Yeet Amogus
